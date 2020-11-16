@@ -1,5 +1,5 @@
 :sparkles: :sparkles: :sparkles:
 
-## Please, insert sparkles
+**Please, insert sparkles**
 
-## Issue description
+**Issue description**
