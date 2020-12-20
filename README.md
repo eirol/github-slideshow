@@ -17,7 +17,7 @@ I'm the GitHub :sparkles: Learning :sparkles: Lab :sparkles: bot and I'm here to
 
 ![issue tab](https://lab.github.com/public/images/issue_tab.png)
 
-I'll meet you over there, can't wait to get started! :sparkles: :sparkles: :sparkles:
+I'll meet you over there, can't wait to get sparkles! :sparkles: :sparkles: :sparkles:
 
 Even more sparkles: :sparkles: :sparkles: :sparkles: :sparkles: :sparkles: :sparkles: :sparkles: :sparkles: :sparkles: :sparkles: :sparkles: :sparkles: :sparkles: :sparkles: :sparkles: :sparkles: :sparkles: :sparkles:
 
